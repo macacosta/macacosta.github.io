@@ -1,4 +1,4 @@
-# Maria Carolina Acosta Pirela
+# MARIA CAROLINA ACOSTA PIRELA
 ## Sr. Reservoir Engineer
 Reservoir monitoring and characterization. Reserves & resources estimation. Pressure-production analysis.
 ###  Working at Geopark since Dec2023
