@@ -9,5 +9,7 @@ Reservoir monitoring and characterization. Reserves & resources estimation. Pres
 
 [LinkedIn profile](https://ve.linkedin.com/in/maria-a-a9212620?trk=people-guest_people_search-card)
 
+<a href="https://www.geo-park.com/es/" target="_blank">Geopark
+
 
 ## Profile Photo
