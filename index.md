@@ -16,6 +16,7 @@ Reservoir monitoring and characterization. Reserves & resources estimation. Pres
 
 ## More about me
 ### Personal
+Venezuelan. Married, 2 kids. Love spending time with my family and traveling.
 
 ### Professional
 +18 years professional experience in oil and gas reservoirs development and management, reservoir surveillance, rock and fluids properties characterization, well test and production logs analysis and interpretation, reserves estimation, development plans formulation, well productivity, reservoir simulation. 
